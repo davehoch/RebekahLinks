@@ -9,5 +9,5 @@
 * [OutSchool](http://outschool.com)
 * [Prodigy](http://prodigy.com)
 * [Super Teacher Worksheets](http://superteacherworksheets.com)
+* [Typing.com](https://www.typing.com/student/lessons)
 * [Vasity Tutors](http://varsitytutors.com)
-* [typing.com](https://www.typing.com/student/lessons)
