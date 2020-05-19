@@ -7,6 +7,7 @@
 * [Newsela](https://newsela.com/signin)
 * [OutSchool](http://outschool.com)
 * [Prodigy](http://prodigygame.com)
+* [Reading Mysteries](https://www.teacherspayteachers.com/My-Purchases)
 * [Spelling City](https://www.spellingcity.com/)
 * [Super Teacher Worksheets](http://superteacherworksheets.com)
 * [Typing.com](https://www.typing.com/student/lessons)
